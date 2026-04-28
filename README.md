@@ -1,2 +1,2 @@
-Hi
-hominh on discord
+Hi,
+im hominh on discord
